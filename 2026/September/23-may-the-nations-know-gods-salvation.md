@@ -27,3 +27,6 @@ Lord, make my life a witness to Your salvation.
 How do you show God's goodness to those around you?
 
 **Share this with someone who needs to hear it today.**
+---
+
+*Bàbá Kébé Devotionals - Growing in faith, living with purpose.*
